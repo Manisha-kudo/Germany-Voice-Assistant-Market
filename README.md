@@ -1,1 +1,0 @@
-# Germany-Voice-Assistant-Market
